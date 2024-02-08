@@ -1,4 +1,4 @@
-### Hi there 👋
+### Tao đã không thích thì đừng có ép tao với lại tao cũng chả muốn ganh đua với ai làm c gì  cả 👋
 # 
 
 ## 🌐Socials
