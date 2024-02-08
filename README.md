@@ -1,4 +1,4 @@
-### Tao đã không thích thì đừng có ép tao với lại tao cũng chả muốn ganh đua với ai làm c gì  cả 👋
+### T đã không thích thì đừng có ép tao với lại t cũng chả muốn ganh đua với ai làm  gì  cả 👋
 # 
 
 ## 🌐Socials
