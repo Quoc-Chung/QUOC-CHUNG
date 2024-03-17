@@ -1,4 +1,4 @@
-### T đã không thích thì đừng có ép tao với lại t cũng chả muốn ganh đua với ai làm  gì  cả 👋
+### ---- rồi ta sẽ lại yêu vì trái tim ta còn ---- 
 # 
 
 ## 🌐Socials
