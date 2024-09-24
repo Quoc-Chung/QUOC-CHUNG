@@ -1,5 +1,4 @@
-### ---- ƯỚC MƠ CỦA MÌNH LÀ TẠO RA MỘT CON GAME CHO RIÊNG MÌNH ---- 
-### ---- SẼ CÓ MỘT THỜI ĐIỂM THÍCH HỢP NHƯNG NÓ KHÔNG PHẢI BÂY GIỜ ---- 
+
 
 ## 🌐Socials
 [![Behance](https://img.shields.io/badge/Behance-1769ff?logo=behance&logoColor=white)](https://behance.net/Chung) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/dungsi.chung.31?mibextid=ZbWKwL) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://instagram.com/chung2k_4?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/c/@chungg1810) 
